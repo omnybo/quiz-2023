@@ -28,16 +28,16 @@
 - Marte Stokkstad
 - Stian Blipp
 
-6. Matthew Perry døde i år. Når ble første episode av serien Friends lansert?
-- 2. mars 1996
-- 6. mai 2004
-- 13. desember 1996
-- * 22. september 1994
+6. Matthew Perry som spilte Chandler i Friends døde i år. Når ble første episode av Friends lansert?
+- 1988
+- 2004
+- 2010
+- 1994
 
-7. Tour de france. Hvem var ikke blant topp 3 sammenlagt?
+7. Hvem vant årets Tour de france?
 -  Adam Yates
--  Jonas Vingegaard
--  * Simon Yates
+-  * Jonas Vingegaard
+-  Simon Yates
 -  Tadej Pogačar
 
 8. Hvilket lag vant Super Bowl i år?
@@ -72,4 +72,19 @@
 - * 14.000 milliarder
 - * 14 billioner
 - 14 fantasillioner
+
+13. Hvilken Star Wars serien kom ut i år?
+- The Mandalorian
+- The book of Boba fett
+- * Ashoka
+- Obi Wan Kenobi
+
+14. Finland kommer på andre plass i årets Eurovision. Hvilken dans synger han om?
+- Cha cha cha
+- Samba
+- Can-can
+- Twist
+
+
+
 
