@@ -66,12 +66,12 @@
 - Slovenia
 - * Kroatia
 
-12. I februar passerer Oljefondet en grense. Hvor mye var det verd da?
+12. Oljefondet stiger og stiger. Hvilken sum passerte det i 2023?
 
-- 1400 milliarder
-- * 14.000 milliarder
-- * 14 billioner
-- 14 fantasillioner
+- 1500 milliarder
+- * 15.000 milliarder
+- * 15 billioners
+- 15 trillioner
 
 13. Hvilken Star Wars serien kom ut i år?
 - The Mandalorian
@@ -85,6 +85,8 @@
 - Can-can
 - Twist
 
-
-
-
+15. Forlaget Puffin sensurerer barnebøkene til en kjent forfatter. Hvilken
+    - Anne Cath. Vestly
+    - Torbjørn Egner
+    - * Roald Dahl
+    - Ingvar Ambjørnsen
