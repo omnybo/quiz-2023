@@ -51,3 +51,25 @@
 - * 17.18
 - 19.99
 - 24.08
+
+10. Taylor Swift innleder et forhold til fotball spilleren Travis Kelce. Hvilket lag spiller han for?
+
+- * Kansas City Chiefs
+- New England Patriots
+- Miami Dolphins
+- Seattle Seahawks
+
+11. Et nytt land knyttet seg til Eurosonen i januar. Hvilket?
+
+- Estland
+- Malta
+- Slovenia
+- * Kroatia
+
+12. I februar passerer Oljefondet en grense. Hvor mye var det verd da?
+
+- 1400 milliarder
+- * 14.000 milliarder
+- * 14 billioner
+- 14 fantasillioner
+
