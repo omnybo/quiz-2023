@@ -80,7 +80,7 @@
 - Obi Wan Kenobi
 
 14. Finland kommer på andre plass i årets Eurovision. Hvilken dans synger han om?
-- Cha cha cha
+- * Cha cha cha
 - Samba
 - Can-can
 - Twist
@@ -90,3 +90,46 @@
     - Torbjørn Egner
     - * Roald Dahl
     - Ingvar Ambjørnsen
+
+16. Hvilken artist hadde årets mest populære sang på Spotify i år?
+- Miley Cyrus
+- Taylor Swift
+- Zsa
+- 
+
+17. Hva heter den Britisk Albanske artisten som sang og hadde en rolle i Barbie filmen?
+- Ariana Grande
+- * Dua lipa
+- Olivia Rodrigo
+- Lana Del Rey
+
+18. Ola Borten Moe måtte gå fra sin ministerpost i august. Hvor mange ministre har måttet gå fra den nåværende regjeringen?
+- *8
+- 4
+- 10
+- 15
+
+
+19. Chatpgt-4 lanseres av selskapet OpenAI i mars. Hvem er største eier i OpenAI?
+- Google
+- Amazon
+- Microsoft
+- IBM
+
+20. VM i friidrett i Budapest i Ungarn. Hvor mange medaljer tok Norge?
+- 5
+- 2
+- 3
+- 4
+
+21. Hvem vant 5-mila i årets ski vm i Planica?
+- * Pål Golberg
+- Johannes Høsflot Klæbo
+- William Poromaa
+- Simen Hegstad Krüger
+
+22. Vulkanutbrudd på Island i desember. Hvilket land har flest aktive vulkaner?
+- USA
+- Russland
+- Island
+- * Indonesia
