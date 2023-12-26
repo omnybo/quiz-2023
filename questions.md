@@ -41,4 +41,13 @@
 -  Tadej Pogačar
 
 8. Hvilket lag vant Super Bowl i år?
-- 
+- Philadelphia Eagles
+- Miami Dolphins
+- Tampa Bay Buccaneers
+- * Kansas City Chiefs
+
+9. USAs senter for miljøprognoser (NCEP) rapporterte rekord gjennomsnittstemperaturen i verden 5.juli. Hva var temeraturen?
+- 15.56
+- * 17.18
+- 19.99
+- 24.08
