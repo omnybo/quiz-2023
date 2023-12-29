@@ -62,7 +62,7 @@ https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163215&authkey=%21AIvMv
 
 https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163216&authkey=%21AGu2o5YDoxDCW2M&width=660
 
-9. USAs senter for miljøprognoser (NCEP) rapporterte rekord gjennomsnittstemperaturen i verden 5.juli. Hva var temeraturen?
+9. USAs senter for miljøprognoser (NCEP) rapporterte rekord gjennomsnittstemperaturen i verden 5.juli. Hva var temperaturen?
 - 15.56
 - * 17.18
 - 19.99
@@ -110,6 +110,8 @@ https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163220&authkey=%21APtzN
 - Samba
 - Can-can
 - Twist
+
+https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163234&authkey=%21AA634cX7SYXERKs&width=660
 
 https://www.youtube.com/watch?v=rJHe-iZ5HSI&t=5s
 
