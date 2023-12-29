@@ -3,6 +3,9 @@
 - * Leah Isadora Behn
 - Sophie Elise
 - Nora Haukland
+
+https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163233&authkey=%21AK060wHRwbkOKJs&width=660
+
 https://www.youtube.com/watch?v=ELlLJjdUJGQ
 
 2. I februar inngikk Norge avtale om kjøp av hvilken stridsvogn?
@@ -10,6 +13,7 @@ https://www.youtube.com/watch?v=ELlLJjdUJGQ
 - Black Panther
 - Abrams
 - T62
+
 https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163200&authkey=%21ANxEahGOzML77fA&width=660
 
 3. Hvilken film ble mest sett på kino i år?
@@ -17,6 +21,7 @@ https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163200&authkey=%21ANxEa
 - Oppenheimer
 - Spider-Man: Across the Spider-Verse
 - * Barbie
+
 https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163210&authkey=%21AH7y05MWFAvrWwY&width=400&height=139
 
 4. Hvilket spill ble kåret til 'Game of the Year 2023'
@@ -24,6 +29,8 @@ https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163210&authkey=%21AH7y0
 - Super Mario Bros. Wonder 
 - * Baldur's Gate 3 
 - The Legend of Zelda: Tears of the Kingdom
+
+https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163232&authkey=%21AFQfGz_xEQuweaI&width=660
 https://www.youtube.com/watch?v=rg36SJU4s-Y&t=2865s
 
 5. Kongen befaler hadde sin 8.sesong i år, hvem vant?
@@ -53,11 +60,15 @@ https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163215&authkey=%21AIvMv
 - Tampa Bay Buccaneers
 - * Kansas City Chiefs
 
+https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163216&authkey=%21AGu2o5YDoxDCW2M&width=660
+
 9. USAs senter for miljøprognoser (NCEP) rapporterte rekord gjennomsnittstemperaturen i verden 5.juli. Hva var temeraturen?
 - 15.56
 - * 17.18
 - 19.99
 - 24.08
+
+https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163217&authkey=%21AJiw-2kdR5EgyCk&width=306&height=165
 
 10. Taylor Swift innleder et forhold til fotball spilleren Travis Kelce. Hvilket lag spiller han for?
 
@@ -65,7 +76,8 @@ https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163215&authkey=%21AIvMv
 - New England Patriots
 - Miami Dolphins
 - Seattle Seahawks
-https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163216&authkey=%21AGu2o5YDoxDCW2M&width=660
+
+https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163198&authkey=%21AFjCp8TjbJxlzqE&width=660
 
 11. Et nytt land knyttet seg til Eurosonen i januar. Hvilket?
 
@@ -73,6 +85,7 @@ https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163216&authkey=%21AGu2o
 - Malta
 - Slovenia
 - * Kroatia
+   
 https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163218&authkey=%21AHDOwRFN5FnQyw4&width=660
 
 12. Oljefondet stiger og stiger. Hvilken sum passerte det i 2023?
@@ -81,6 +94,7 @@ https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163218&authkey=%21AHDOw
 - * 15.000 milliarder
 - * 15 billioners
 - 15 trillioner
+
 https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163219&authkey=%21AAZj7057HBUhEM0&width=660
 
 13. Hvilken Star Wars serien kom ut i år?
@@ -88,6 +102,7 @@ https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163219&authkey=%21AAZj7
 - The book of Boba fett
 - * Ashoka
 - Obi Wan Kenobi
+  
 https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163220&authkey=%21APtzNPTBANvvqd0&width=289&height=174
 
 14. Finland kommer på andre plass i årets Eurovision. Hvilken dans synger han om?
@@ -95,6 +110,7 @@ https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163220&authkey=%21APtzN
 - Samba
 - Can-can
 - Twist
+
 https://www.youtube.com/watch?v=rJHe-iZ5HSI&t=5s
 
 15. Forlaget Puffin sensurerer barnebøkene til en kjent forfatter. Hvilken
@@ -102,6 +118,7 @@ https://www.youtube.com/watch?v=rJHe-iZ5HSI&t=5s
     - Torbjørn Egner
     - * Roald Dahl
     - Ingvar Ambjørnsen
+
 https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163221&authkey=%21AGWlMnLwzFmfZdo&width=225&height=225
 
 16. Hvilken artist hadde årets mest populære sang på Spotify i år?
@@ -109,6 +126,9 @@ https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163221&authkey=%21AGWlM
 - Taylor Swift
 - Zsa
 - 
+
+https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163205&authkey=%21AHvRvSZQ7RQygho&width=660
+
 https://www.youtube.com/watch?v=H5v3kku4y6Q
 
 17. Hva heter den Britisk Albanske artisten som sang og hadde en rolle i Barbie filmen?
@@ -116,6 +136,9 @@ https://www.youtube.com/watch?v=H5v3kku4y6Q
 - * Dua lipa
 - Olivia Rodrigo
 - Lana Del Rey
+
+https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163237&authkey=%21AMzdpzDJ3s-dKJc&width=660
+
 https://www.youtube.com/watch?v=pBk4NYhWNMM
 
 18. Ola Borten Moe måtte gå fra sin ministerpost i august. Hvor mange ministre har måttet gå fra den nåværende regjeringen?
@@ -123,6 +146,7 @@ https://www.youtube.com/watch?v=pBk4NYhWNMM
 - 4
 - 10
 - 15
+
 https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163222&authkey=%21APNJ18ZtXmlQHOY&height=660
 
 19. Chatpgt-4 lanseres av selskapet OpenAI i mars. Hvem er største eier i OpenAI?
@@ -130,6 +154,7 @@ https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163222&authkey=%21APNJ1
 - Amazon
 - Microsoft
 - IBM
+
 https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163224&authkey=%21ABqKAwSJzkWbLxo&width=660
 
 20. VM i friidrett i Budapest i Ungarn. Hvor mange medaljer tok Norge?
@@ -137,6 +162,7 @@ https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163224&authkey=%21ABqKA
 - 2
 - 3
 - 4
+
 https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163225&authkey=%21AO2c84I3mD_wH30&width=660
 
 21. Hvem vant 5-mila i årets ski vm i Planica?
@@ -144,6 +170,7 @@ https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163225&authkey=%21AO2c8
 - Johannes Høsflot Klæbo
 - William Poromaa
 - Simen Hegstad Krüger
+
 https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163228&authkey=%21AIixXceFF8-tuOg&width=660
 
 22. Vulkanutbrudd på Island i desember. Hvilket land har flest aktive vulkaner?
@@ -151,4 +178,5 @@ https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163228&authkey=%21AIixX
 - Russland
 - Island
 - * Indonesia
+
 https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163230&authkey=%21AOQUqr-IfZg-8yE&width=660
