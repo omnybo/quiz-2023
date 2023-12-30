@@ -4,6 +4,8 @@
 - Sophie Elise
 - Nora Haukland
 
+https://cdn.sanity.io/images/lpopg89a/production/292e85910a72c6a93473678bccbcf481cb0a1235-720x411.jpg?w=2000&fit=max&auto=format&dpr=2
+
 https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163233&authkey=%21AK060wHRwbkOKJs&width=660
 
 https://www.youtube.com/watch?v=ELlLJjdUJGQ
@@ -167,7 +169,18 @@ https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163224&authkey=%21ABqKA
 
 https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163225&authkey=%21AO2c84I3mD_wH30&width=660
 
-21. Hvem vant 5-mila i årets ski vm i Planica?
+21. Hva er verdens mest folkerike land?
+- Kina
+- USA
+- Russland
+- * India
+
+https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163239&authkey=%21ALAyWQQxbIA0mfU&width=660
+
+https://cdn.sanity.io/images/lpopg89a/production/1264c03b8309df1774a1b37af56b82799baa2ec8-720x429.jpg?w=2000&fit=max&auto=format&dpr=2
+
+
+22. Hvem vant 5-mila i årets ski vm i Planica?
 - * Pål Golberg
 - Johannes Høsflot Klæbo
 - William Poromaa
@@ -175,7 +188,7 @@ https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163225&authkey=%21AO2c8
 
 https://onedrive.live.com/embed?resid=F95EFB5AD2760789%21163228&authkey=%21AIixXceFF8-tuOg&width=660
 
-22. Vulkanutbrudd på Island i desember. Hvilket land har flest aktive vulkaner?
+23. Vulkanutbrudd på Island i desember. Hvilket land har flest aktive vulkaner?
 - USA
 - Russland
 - Island
